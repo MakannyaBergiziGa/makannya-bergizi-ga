@@ -100,4 +100,4 @@ also, note that ***this question is optional***. so not everyone out of the 23 r
 
 # End of README!
 
-will this gallery be updated next school year? maybe! but this little side project consumed my focus for the past semester.
+will this gallery be updated next school year? maybe! but this little side project consumed my focus for the past semester. so i probably wont update it!
