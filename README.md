@@ -10,7 +10,7 @@ the MBG on this repository is based on MAN kota Surabaya.
 
 when i first heard of the MBG plan, i instantly disagreed. cause i thought that the money that'd be spent on MBG could be allocated somewhere else. and they definitely didnt cut the budget on of other sectors of the government in favor of MBG (though this is based on what i remember. i might be remembering things wrong). but since most of my friends and fellow students seems to be in favor of MBG, then sure. lets see what happens.
 
-and whaddayaknow, some schools completely struggle to maintain quality in their MBG menus. some even poisoning students. im sure those problems are solved by now, but it was still quite disastrous. when MBG finally arrived to my school, it arrived 2 hours behind schedule... but the food... was alright. it was 'good enough' for me. very good for others. and somehow, throughout this entire semester, no one has been poisoned. signifying that MBG at my school are being taken care of very well.
+and whaddayaknow, some schools completely struggle to maintain quality in their MBG menus. some even poisoning students. im sure those problems are solved by now, but it was still quite disastrous. when MBG finally arrived to my school, it arrived 2 hours behind schedule... but the food... was alright. it was 'good enough' for me. very good for others. and somehow, throughout the entire semester, no one has been poisoned. signifying that MBG at my school are being taken care of very well.
 
 im still under the opinion that MBG is an unecessary spending for tax money. but oh well. what power do i have at this age. this ends my thoughts on MBG.
 
